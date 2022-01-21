@@ -3,7 +3,7 @@
 ### Check out my Tech Content:
 
 [GEEKNaren on YouTube](https://www.youtube.com/channel/UC9b5HjeayKls3UqSjTGRYMQ)<br/>
-[GEEKNaren on Instagran](https://www.instagram.com/geeknaren)<br/>
+[GEEKNaren on Instagram](https://www.instagram.com/geeknaren)<br/>
 [GEEKNaren on FB](https://www.facebook.com/geeknaren)
 
 
