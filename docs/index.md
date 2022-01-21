@@ -7,7 +7,7 @@
 [GEEKNaren on FB](https://www.facebook.com/geeknaren)
 
 
-```Videos
+## Videos
 
 1. *I Learnt 3D Animation to remake this Video*
 [Video on YouTube](https://youtu.be/HOrMFuHGs5M)
@@ -36,10 +36,6 @@
 7. *Need Guidance ? Lets Setup iPhone 13 Pro Together | Tutorial*
 [Video on YouTube](https://youtu.be/HK_n4K_Nudo)
 ![Thumbnail](https://i9.ytimg.com/vi/HK_n4K_Nudo/mqdefault.jpg?v=61b63b66&sqp=CKC0rI8G&rs=AOn4CLBnDDTeM31wD6IjnMakDACRufcMaQ)
-
-```
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
 
 
 ### Talk to me on Instagram
