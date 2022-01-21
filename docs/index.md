@@ -30,6 +30,9 @@
 7. [Need Guidance ? Lets Setup iPhone 13 Pro Together | Tutorial](https://youtu.be/HK_n4K_Nudo)<br/>
 ![Thumbnail](https://i9.ytimg.com/vi/HK_n4K_Nudo/mqdefault.jpg?v=61b63b66&sqp=CKC0rI8G&rs=AOn4CLBnDDTeM31wD6IjnMakDACRufcMaQ)
 
+8. [Team Huddles LIKE A PRO | ZOOM Meetings | Office](https://youtu.be/WEUtGnARSEA)<br/>
+![Thumbnail](https://i9.ytimg.com/vi/WEUtGnARSEA/mqdefault.jpg?v=61c8626c&sqp=CNC9rI8G&rs=AOn4CLDISp-jryR441btiISus0zEfk9JnQ)
+
 
 ### Talk to me on Instagram
 [GEEKNaren](instagram.com/geeknaren)
