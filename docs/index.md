@@ -1,11 +1,6 @@
 ## GEEKNaren - Welcome to My GEEK Space
 
-### Check out my Tech Content:
-
-[GEEKNaren on YouTube](https://www.youtube.com/channel/UC9b5HjeayKls3UqSjTGRYMQ)<br/>
-[GEEKNaren on Instagram](https://www.instagram.com/geeknaren)<br/>
-[GEEKNaren on FB](https://www.facebook.com/geeknaren)
-
+[GEEKNaren on YouTube](https://www.youtube.com/channel/UC9b5HjeayKls3UqSjTGRYMQ) | [GEEKNaren on Instagram](https://www.instagram.com/geeknaren) | [GEEKNaren on FB](https://www.facebook.com/geeknaren)
 
 ## Videos
 
