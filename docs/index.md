@@ -2,7 +2,8 @@
 
 [GEEKNaren on YouTube](https://www.youtube.com/channel/UC9b5HjeayKls3UqSjTGRYMQ)<br/>
 [GEEKNaren on Instagram](https://www.instagram.com/geeknaren)<br/>
-[GEEKNaren on FB](https://www.facebook.com/geeknaren)
+[GEEKNaren on Twitter](https://www.twitter.com/geeknaren)<br/>
+[GEEKNaren on FB](https://www.facebook.com/geeknaren)<br/>
 
 ## Videos
 
