@@ -3,7 +3,7 @@
 Hi! I am Naren, a software developer since 2013. I am a polyglot so not tied to any specific language. Just don't like Javascript in particular :P m very much curious about other stuff like DevOps, Animation, VFX, Music, Gaming, etc.
 Stay tuned for more content on my YouTube channel.
 
-Open for #collab, so reach out to me on my Instagram handle,
+Open for #collab, so reach out to me on my Instagram handle.
 
 ## Videos
 
