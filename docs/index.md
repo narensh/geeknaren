@@ -7,7 +7,7 @@ He also has experience in implementing <b>scrum practices and building high perf
 Stay tuned for more content on his <b>tech channel</b> [/GEEKNaren](youtube.com/channel/UC9b5HjeayKls3UqSjTGRYMQ)</i>
 
 <i>He is a music enthusiast as well and runs a <b>music channel</b> :guitar:[/Seeking Rhythm Divine](youtube.com/c/SeekingRhythmDivine)<br/><br/>
-Open for <b>collab</b>, so reach out to him on my Instagram handle [@GeekNaren](instagram.com/geeknaren)</i>
+Open for <b>collab</b>, so reach out to him on Instagram [@GeekNaren](instagram.com/geeknaren)</i>
 
 ## Videos
 
