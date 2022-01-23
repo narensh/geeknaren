@@ -4,10 +4,10 @@
 He also has experience in implementing <b>scrum practices and building high performing teams</b>.</i>
 
 <i>Recently, Naren has been exploring other stuff like <b>Animation, VFX, Music, Gaming</b>, etc.
-Stay tuned for more content on his <b>tech channel</b> [/GEEKNaren](youtube.com/channel/UC9b5HjeayKls3UqSjTGRYMQ)</i>
+Stay tuned for more content on his <b>tech channel</b> [/GEEKNaren](https://youtube.com/channel/UC9b5HjeayKls3UqSjTGRYMQ)</i>
 
-<i>He is a music enthusiast as well and runs a <b>music channel</b> :guitar:[/Seeking Rhythm Divine](youtube.com/c/SeekingRhythmDivine)<br/><br/>
-Open for <b>collab</b>, so reach out to him on Instagram [@GeekNaren](instagram.com/geeknaren)</i>
+<i>He is a music enthusiast as well and runs a <b>music channel</b> :guitar:[/Seeking Rhythm Divine](https://youtube.com/c/SeekingRhythmDivine)<br/><br/>
+Open for <b>collab</b>, so reach out to him on Instagram [@GeekNaren](https://instagram.com/geeknaren)</i>
 
 ## Videos
 
