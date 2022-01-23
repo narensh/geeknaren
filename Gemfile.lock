@@ -285,6 +285,7 @@ DEPENDENCIES
   jekyll
   jekyll-feed (~> 0.6)
   jekyll-theme-architect
+  jemoji
   kramdown-parser-gfm
   tzinfo (~> 1.2)
   tzinfo-data
